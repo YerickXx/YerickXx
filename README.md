@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently studying Computer Engineering <br>Searching for learn more than just University resources <br>Constantly learning, passionate for technology
+Currently studying Computer Engineer, i have the Associate Degree diploma <br>Searching for learn more than just University resources <br>Constantly learning, passionate for technology
 
 
 ## 🌐 Socials:
